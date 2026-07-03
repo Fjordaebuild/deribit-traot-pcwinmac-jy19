@@ -1,4 +1,4 @@
-# 
+# Professionnel deribit trading bot extensions for Mac OS | VIP deribit trading bot extensions for PC Windows. Featuring trading de contrats à terme and pools de liquidité DEX — optimized for maximum performance.
 
 
 
